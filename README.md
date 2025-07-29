@@ -1,1 +1,1 @@
-Ggraphic Design for modern business
+Graphic Design for modern business
